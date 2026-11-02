@@ -19,3 +19,32 @@ im only making this to be better than a certain someone
 
 i need music to thrive and without music im a dull boy. all work and no play makes me a gubbity
 
+<img width="2880" height="2160" alt="image" src="https://github.com/user-attachments/assets/48dd5c30-07d2-4bd8-ba0e-ee07ed9496f5" />
+
+
+# DNI EVERYONE SINCE IM NOT PURPOSELY SENDING THIS ANYWHERE (AND AS YOU CAN SEE I LIKE PROJECT MOON) 
+
+<h2>only person in my friend group with tally hall concert tickets suck on that guys</h2>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
