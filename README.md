@@ -19,6 +19,11 @@ im only making this to be better than a certain someone
 
 i need music to thrive and without music im a dull boy. all work and no play makes me a gubbity
 
+
+the pronouns i go by dont matter in the slightest so they/any is fine. im making this at 1:00 am because i randomly got motivated which is mb 
+
+## I REALLLLLLLLLLLLLLLYYYYYYYYYYYYYYY WANNA GET INTO FILMMMMMMMMMMMMMMMMMMMMMM
+
 <img width="2880" height="2160" alt="image" src="https://github.com/user-attachments/assets/48dd5c30-07d2-4bd8-ba0e-ee07ed9496f5" />
 
 
