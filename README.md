@@ -1,4 +1,4 @@
-# Anchovy-Pizza The Best (
+# Anchovy-Pizza The Best 
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
 
@@ -38,7 +38,7 @@ the pronouns i go by dont matter in the slightest so they/any is fine. im making
 <h2>only person in my friend group with tally hall concert tickets suck on that guys</h2>
 
 
-i also cant draw nor can i do arts and crafts so im kinda useless!!!!!!!!!!!!!!!!!!!!!!!!!!!!1 im smart though so its okay. math sucks and anyone who likes it is a complete geek
+#### <p style="text-align:center;">i also cant draw nor can i do arts and crafts so im kinda useless!!!!!!!!!!!!!!!!!!!!!!!!!!!!1 im smart though so its okay. math sucks and anyone who likes it is a complete geek</p>
 
 <img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
 
