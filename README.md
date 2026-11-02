@@ -1,15 +1,18 @@
-# Anchovy-Pizza
+# Anchovy-Pizza The Best (
 
-<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
 
 
-hi im bucketofanchovies and i plan on making more github projects in the near future, though ill have to start with simplistic software like scratch to get the hang of everything. 
+hi im bucketofanchovies and i plan on making more github projects in the near future, though ill have to start with beginner software like scratch to get the hang of everything. 
+<img align=right width="216" height="228" alt="image" src="https://github.com/user-attachments/assets/4779126a-8d86-4ecf-8809-915422eed20e" />
 
 
 im only making this to be better than a certain someone 
 
 
 **that silly gubby that i hate** 
+
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
 
 
 # i miss html this is gonna be boring i can feel it
@@ -18,11 +21,14 @@ im only making this to be better than a certain someone
 
 
 i need music to thrive and without music im a dull boy. all work and no play makes me a gubbity
+<img align=left width="216" height="228" alt="image" src="https://github.com/user-attachments/assets/4c13614a-c03e-4e1e-9c7e-7f7b416e467c" />
 
 
 the pronouns i go by dont matter in the slightest so they/any is fine. im making this at 1:00 am because i randomly got motivated which is mb 
 
 ## I REALLLLLLLLLLLLLLLYYYYYYYYYYYYYYY WANNA GET INTO FILMMMMMMMMMMMMMMMMMMMMMM
+
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
 
 <img width="2880" height="2160" alt="image" src="https://github.com/user-attachments/assets/48dd5c30-07d2-4bd8-ba0e-ee07ed9496f5" />
 
@@ -30,6 +36,11 @@ the pronouns i go by dont matter in the slightest so they/any is fine. im making
 # DNI EVERYONE SINCE IM NOT PURPOSELY SENDING THIS ANYWHERE (AND AS YOU CAN SEE I LIKE PROJECT MOON) 
 
 <h2>only person in my friend group with tally hall concert tickets suck on that guys</h2>
+
+
+i also cant draw nor can i do arts and crafts so im kinda useless!!!!!!!!!!!!!!!!!!!!!!!!!!!!1 im smart though so its okay. math sucks and anyone who likes it is a complete geek
+
+<img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/aaa78de2-0e38-460c-b203-99549fc85b33" />
 
 
 
